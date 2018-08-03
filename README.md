@@ -1,2 +1,3 @@
 Dr. NEETU SINGH TOMAR
-Post Doctoral Fellow
+Post Doctoral Fellow Sociology
+University Grant Commission Delhi
